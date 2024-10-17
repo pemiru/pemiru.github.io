@@ -1,1 +1,0 @@
-# pemiru.github.io
